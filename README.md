@@ -1,2 +1,2 @@
 # Chirstmas
-for my gf only
+Just for fun 
